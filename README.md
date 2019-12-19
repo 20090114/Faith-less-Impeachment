@@ -1,2 +1,2 @@
-# Faith-less-Impeachment
+# Faith(less) Impeachment
 Why impeachment is a hoax
